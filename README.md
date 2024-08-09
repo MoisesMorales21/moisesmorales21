@@ -1,16 +1,22 @@
-## Hi there 👋
+¡Hola! Soy Mabel Olivera - @mabelolivera10 y estoy encantada de conocerte.
 
-<!--
-**MoisesMorales21/moisesmorales21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Acerca de mí👀
+Soy una persona apasionada por mi profesión, con una excelente capacidad de organización y facilidad para trabajar en equipo. Me considero altamente adaptable a diferentes entornos y siempre enfocada en alcanzar objetivos. Además, poseo conocimientos en diversos lenguajes de programación como Java, Visual.NET, PHP, entre otros. Tengo un gran interés en el desarrollo de software y el análisis de sistemas.
 
-Here are some ideas to get you started:
+🌱 Actualmente, estoy enfocada en seguir aprendiendo y mejorando mis habilidades en distintos lenguajes de programación.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Colaboración💞
+Estoy interesada en colaborar contigo en proyectos emocionantes y desafiantes. ¡Juntos podemos lograr grandes cosas!
+
+Contacto 📫
+Puedes encontrarme en mis redes sociales:
+
+Facebook
+Instagram
+TikTok
+YouTube
+LinkedIn
+Twitter
+Codepen
+Sitio Web
+¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊

@@ -1,4 +1,4 @@
-¡Hola! Soy Moises Morales21-@moisesmorales21 y estoy encantada de conocerte.
+¡Hola! Soy MoisesMorales21-@moisesmorales21 y estoy encantada de conocerte.
 
 # Acerca de mí👀
 
@@ -12,17 +12,13 @@ Soy una persona apasionada por mi profesión, con una excelente capacidad de org
 
 Estoy interesada en colaborar contigo en proyectos emocionantes y desafiantes. ¡Juntos podemos lograr grandes cosas!
 
-# Contacto 📫
+# Conéctate conmigo 📫
 
 
 Puedes encontrarme en mis redes sociales:
-
-Facebook
-Instagram
-TikTok
-YouTube
-LinkedIn
-Twitter
-Codepen
-Sitio Web
+- **[Facebook](https://www.facebook.com/MoisesMorales21)**
+- **[Instagram](https://www.instagram.com/tu-perfil)**
+- **[TikTok](https://www.tiktok.com/@tu-perfil)**
+- **[LinkedIn](https://www.linkedin.com/in/tu-perfil)**
+- **[Twitter](https://twitter.com/tu-perfil)**
 ¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊

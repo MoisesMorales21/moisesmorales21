@@ -16,9 +16,9 @@ Estoy interesada en colaborar contigo en proyectos emocionantes y desafiantes. �
 
 
 Puedes encontrarme en mis redes sociales:
-- **[Facebook](https://www.facebook.com/MoisesMorales21)**
-- **[Instagram](https://www.instagram.com/tu-perfil)**
-- **[TikTok](https://www.tiktok.com/@tu-perfil)**
-- **[LinkedIn](https://www.linkedin.com/in/tu-perfil)**
+- **[Facebook](https://www.facebook.com/your.MoisesMorales21)**
+- **[Instagram](https://www.instagram.com//moisesmg_2121)**
+- **[TikTok](https://www.tiktok.com/@elprincipito_m)**
+- **[LinkedIn](https://www.linkedin.com/in/moises-morales-gomez-b66491308)**
 - **[Twitter](https://twitter.com/tu-perfil)**
 ¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊

@@ -16,7 +16,7 @@ Estoy interesado en colaborar contigo en proyectos emocionantes y desafiantes. Â
 
 
 Puedes encontrarme en mis redes sociales:
-- **[Facebook](facebook.com/profile.php?id=100033996735910)**
+- **[Facebook](https://www.facebook.com/profile.php?id=100033996735910)**
 - **[Instagram](https://www.instagram.com//moisesmg_2121)**
 - **[TikTok](https://www.tiktok.com/@elprincipito_m)**
 - **[LinkedIn](https://www.linkedin.com/in/moises-morales-gomez-b66491308)**
